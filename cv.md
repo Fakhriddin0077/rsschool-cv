@@ -7,7 +7,7 @@
 - **Phone:** +99897 4010077
 - **E-mail:** faxriddin.com@gmail.com
 - **Telegram:** https://t.me/arteluz
-- **Telegram channel:** https://hardware_com
+- **Telegram channel:** https://t.me/hardware_com
 - **Facebook:** https://fb.com/faxriddin.uz
 - **GitHub:** https://github.com/Fakhriddin0077
 - **discord:** Fakhriddin0077#4536 
