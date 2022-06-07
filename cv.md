@@ -1,4 +1,4 @@
-# [rsschool-cv](https://github.com/Fakhriddin0077/rsschool-cv "rsschool")
+# [rsschool-cv](https://fakhriddin0077.github.io/rsschool-cv/ "rsschool")
 # Sagdullaev Fakhriddin
 
 
